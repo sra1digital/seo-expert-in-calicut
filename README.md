@@ -1,1 +1,0 @@
-# seo-expert-in-calicut
